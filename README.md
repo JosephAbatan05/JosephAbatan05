@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @JosephAbatan05
+God first 
 - Fun fact about me:
 Reading,love podcasts,football,chess,calm but talkactive 
 - 👀 I’m interested in learning in  Web App Development,Data Engineering,Arduino programming and Entrepreneurship...
